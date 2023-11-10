@@ -1,4 +1,4 @@
-Hi 👋 My name is Nisreen Salameh
+Hi 👋 I'm Nisreen Salameh
 ================================
 Welcome to My Coding Corner!
 ----------------------------
